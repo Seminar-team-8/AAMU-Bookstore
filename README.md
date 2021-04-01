@@ -1,1 +1,1 @@
-# Lowkey
+# Alabama A&M Bookstore
